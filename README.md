@@ -32,3 +32,4 @@ save some japanese RGP SAVE
 |妖怪yin遁传女忍玉惠|
 |药与魔法的米莉尔|
 |转生！！异世界的旅程！|
+|Explorer of Yggdrasil|游戏性不错|
