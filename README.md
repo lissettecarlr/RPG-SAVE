@@ -4,7 +4,7 @@ save some japanese RGP SAVE
 |游戏名字|说明|
 |---|---|
 |Blood price||
-|False Myth||
+|False Myth|游戏性很棒|
 |JOfightver||
 |Magical Swordmaiden|
 |The Curse of Kubel|
@@ -33,3 +33,4 @@ save some japanese RGP SAVE
 |药与魔法的米莉尔|
 |转生！！异世界的旅程！|
 |Explorer of Yggdrasil|游戏性不错|
+|驱魔少女夏洛特|游戏性一般，CG不错|
