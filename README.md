@@ -34,3 +34,4 @@ save some japanese RGP SAVE
 |转生！！异世界的旅程！|
 |Explorer of Yggdrasil|游戏性不错|
 |驱魔少女夏洛特|游戏性一般，CG不错|
+|冒险者与王室之血|一般|
