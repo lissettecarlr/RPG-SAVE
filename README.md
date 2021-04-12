@@ -35,3 +35,4 @@ save some japanese RGP SAVE
 |Explorer of Yggdrasil|游戏性不错|
 |驱魔少女夏洛特|游戏性一般，CG不错|
 |冒险者与王室之血|一般|
+|刺客女仆佛媞|游戏性一般，CG不错|
