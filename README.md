@@ -36,3 +36,5 @@ save some japanese RGP SAVE
 |驱魔少女夏洛特|游戏性一般，CG不错|
 |冒险者与王室之血|一般|
 |刺客女仆佛媞|游戏性一般，CG不错|
+|念动少女|有CV|
+|PRINCESS GO ROUND||
