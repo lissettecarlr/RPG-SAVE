@@ -38,3 +38,4 @@ save some japanese RGP SAVE
 |刺客女仆佛媞|游戏性一般，CG不错|
 |念动少女|有CV|
 |PRINCESS GO ROUND||
+|阿尔忒弥斯乐园||
