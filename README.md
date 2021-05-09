@@ -39,3 +39,4 @@ save some japanese RGP SAVE
 |念动少女|有CV|
 |PRINCESS GO ROUND||
 |阿尔忒弥斯乐园||
+|赌徒游戏|有CV，动态，全剧情，但游戏性一般|
