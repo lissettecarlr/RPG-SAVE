@@ -61,3 +61,5 @@ save some japanese RGP SAVE
 |超速くノ一 クロユリ||
 |Hero Zex||
 |梦魇高校 ~迷途的少女们||
+|不知世事的莉莉||
+|逃亡中||
