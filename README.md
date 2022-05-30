@@ -67,3 +67,5 @@ save some japanese RGP SAVE
 |从今天开始所以XXXXX|还不错|
 |精灵索菲亚||
 |騎士姬庫拉莉絲||
+|王国的守护天使|有CV|
+|RitualSummon|横屏游戏|
