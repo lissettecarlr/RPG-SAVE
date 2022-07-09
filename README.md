@@ -69,3 +69,4 @@ save some japanese RGP SAVE
 |騎士姬庫拉莉絲||
 |王国的守护天使|有CV|
 |RitualSummon|横屏游戏|
+|赤环的少女||
