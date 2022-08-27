@@ -70,3 +70,8 @@ save some japanese RGP SAVE
 |王国的守护天使|有CV|
 |RitualSummon|横屏游戏|
 |赤环的少女||
+|少女神艾米丽||
+|魔物娘大师||
+|milkyquest2|太肝，没打完|
+|怪人搏斗||
+|斗神都市3||
