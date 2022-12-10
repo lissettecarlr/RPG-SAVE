@@ -75,3 +75,10 @@ save some japanese RGP SAVE
 |milkyquest2|太肝，没打完|
 |怪人搏斗||
 |斗神都市3||
+|魔王之女戴沫娜||
+|阿莉雅与迷宫的秘密||
+|HolyKnightRicca||
+|Nebel Geisterjager|CV，无、ntr|
+|御子菲涅|无|
+|哈梅斯塔西亚王国||
+|转生到魔界||
