@@ -82,3 +82,4 @@ save some japanese RGP SAVE
 |御子菲涅|无|
 |哈梅斯塔西亚王国||
 |转生到魔界||
+|战斗巫女惠香||
