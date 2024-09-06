@@ -113,3 +113,9 @@ save some japanese RGP SAVE
 |关于我转生变成M魔这档事||
 |除灵猎人||
 |黄昏酒馆||
+|白嫖卷|高质量动图|
+|Syahata's bad day|动图和CG都特别棒，游戏性一半，修改存档打通|
+|片桐小姐想依赖我|游戏性做得挺好的，至于口工部分就一般了，算个添头|
+|NPC_Rape_Sex_wishes_in_the_Campus||
+|Himegashima Island 姬之岛||
+|ヤリステメスブター宝可梦|白嫖卷公司做得，这代各方面都很不错|
